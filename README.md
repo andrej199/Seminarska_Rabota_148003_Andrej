@@ -1,0 +1,2 @@
+# Seminarska_Rabota_148003_Andrej
+Seminarska_Rabota_148003
